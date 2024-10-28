@@ -29,7 +29,7 @@ Espaço do Libertário
 
 [Leia "Individualismo e a filosofia das ciências sociais" de Murray Rothbard)](https://rothbardbrasil.com/wp-content/uploads/2024/06/Individualismo_e_a_Filosofia_das_Ciencias_Sociais_Murray_Rothbard.pdf)
 
-[Leia "História do Pensamento Econômico – Uma Perspectiva Austríaca – Economia Clássica" de  Murray Rothbard)](https://rothbardbrasil.com/wp-content/uploads/2022/12/Historia-do-Pensamento-Economico-Vol-II.pdf)
+[Leia "História do Pensamento Econômico – Uma Perspectiva Austríaca – Economia Clássica" de  Murray Rothbard](https://rothbardbrasil.com/wp-content/uploads/2022/12/Historia-do-Pensamento-Economico-Vol-II.pdf)
 
 [Leia "A Grande Ficção" de Hans-Hermann Hoppe](https://rothbardbrasil.com/wp-content/uploads/2023/01/A-Grande-Ficcao_HOPPE_livro-completo.pdf)
 
