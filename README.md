@@ -31,9 +31,9 @@ Espaço do Libertário
 
 [Leia "História do Pensamento Econômico – Uma Perspectiva Austríaca – Economia Clássica" de  Murray Rothbard)](https://rothbardbrasil.com/wp-content/uploads/2022/12/Historia-do-Pensamento-Economico-Vol-II.pdf)
 
-[Leia "A Grande Ficção" de Hans-Hermann Hoppe)](https://rothbardbrasil.com/wp-content/uploads/2023/01/A-Grande-Ficcao_HOPPE_livro-completo.pdf)
+[Leia "A Grande Ficção" de Hans-Hermann Hoppe](https://rothbardbrasil.com/wp-content/uploads/2023/01/A-Grande-Ficcao_HOPPE_livro-completo.pdf)
 
-[Leia "A origem do dinheiro" de Carl Menger)](https://rothbardbrasil.com/wp-content/uploads/2017/08/Sobre-A-Origem-Do-Dinheiro-Carl-Menger-1.pdf)
+[Leia "A origem do dinheiro" de Carl Menger](https://rothbardbrasil.com/wp-content/uploads/2017/08/Sobre-A-Origem-Do-Dinheiro-Carl-Menger-1.pdf)
 
 
 
