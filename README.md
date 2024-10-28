@@ -23,9 +23,9 @@ Espaço do Libertário
 
 [Leia "A Ética da Liberdade" de Murray Rothbard (1982)](https://rothbardbrasil.com/wp-content/uploads/arquivos/A%20etica%20da%20liberdade%20-%20miolo%20capa%20brochura_2013.pdf)
 
-[Leia "1984" de George Orwell - reflexão sobre controle estatal)](https://multimidia.gazetadopovo.com.br/media/info/2022/202209/1984/e-book-1984.pdf)
+[Leia "1984" de George Orwell - reflexão sobre controle estatal](https://multimidia.gazetadopovo.com.br/media/info/2022/202209/1984/e-book-1984.pdf)
 
-[Leia "A revolução dos bichos" de George Orwell - critica ao totalitarismo)](https://multimidia.gazetadopovo.com.br/media/info/2021/202110/bichos/revolucao-dos-bichos.pdf)
+[Leia "A revolução dos bichos" de George Orwell - critica ao totalitarismo](https://multimidia.gazetadopovo.com.br/media/info/2021/202110/bichos/revolucao-dos-bichos.pdf)
 
 [Leia "Individualismo e a filosofia das ciências sociais" de Murray Rothbard)](https://rothbardbrasil.com/wp-content/uploads/2024/06/Individualismo_e_a_Filosofia_das_Ciencias_Sociais_Murray_Rothbard.pdf)
 
