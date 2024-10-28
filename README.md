@@ -17,8 +17,6 @@ Espaço do Libertário
 
 [Leia "A Revolta de Atlas" de Ayn Rand (1957)](https://www.editoraarqueiro.com.br/media/RevoltaDeAtlas_1_Cap1.pdf)
 
-[Leia "A Revolta de Atlas" de Ayn Rand (1957)](https://www.editoraarqueiro.com.br/media/RevoltaDeAtlas_1_Cap1.pdf)
-
 [Leia "A Teoria dos Sentimentos Morais" de Adam Smith (1759)](https://pt.scribd.com/document/375293435/SMITH-Adam-Teoria-Dos-Sentimentos-Morais-Livro-Completo)
 
 [Leia "Liberalismo: A Tradição Clássica" de Ludwig von Mises (1927)](https://rothbardbrasil.com/wp-content/uploads/arquivos/liberalismo.pdf)
